@@ -1,14 +1,9 @@
-SAVE THE RAMMERHEAD FILE. 
+Hello!!! (⌐■_■)づ 
+Welcome to my unblocker page!!!
 
-1 CLICK ON THE FILE
+You can see a lot of files, i dont have active rammerhead links but i do have other unblockers!  ٩(´•⌢•｀ )۶
+If you want to go to see all the unblockers you can go to the unblockers file!
+all the other files are roms that you can use for the emulator inside the Art Class site (in unblockers)
+Anyways hope you enjoy, remember i will keep this updated as much as possible!
 
-2 CLICK RAW
-
-3 RIGHT CLICK ON THE BLACK ZONE AND PRESS SAFE AS
-
-4 GO TO BOOKMARKS
-
-5 IMPORT BOOKMARK ON 3 DOTS
-
-6 SELECT HTLM FILE AND UR GOOD TO DO :DDDDDD!!!!
-
+(👍 ͡• ͜ʖ ͡•)👍
